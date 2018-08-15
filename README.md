@@ -41,3 +41,4 @@ Choose the correct answer
 4) 4
 
 #### From Kenn: Don't over think it
+Answer is 2
